@@ -42,7 +42,7 @@ I've always been fascinated by the world of coding, and from the moment I discov
 ### 📬 Connect with Me
 
 Gmail: [adjetey.sowah.321@gmail.com](mailto:adjetey.sowah.321@gmail.com)  
-LinkedIn: [Emmanuel Adjetey Sowah](https://www.linkedin.com/in/emmanuel-adjetey-sowah/)  
+LinkedIn: [Emmanuel Adjetey Sowah](https://www.linkedin.com/in/emmanuel-adjetey-sowah-1683a3261?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)  
 X(formerly Twitter): [Adjetey E Sowah](https://twitter.com/AdjeteyESowah)
 
 ---
